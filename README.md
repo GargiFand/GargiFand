@@ -14,4 +14,5 @@
    - 🌿 Gardening relaxes me
    - 🐾 I volunteer at a local animal shelter and have fostered several rescue pets.
    - 🌏 Traveling is a big part of my life
+  
 Feel free to tweak any of these details or add more to better reflect your personality and interests.
